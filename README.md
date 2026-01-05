@@ -1,4 +1,4 @@
-Hello !! I'm Asmo !! I'm a decora and I do ponytown stuff !! I also like Naruto, vocaloid and metal / rock music!!
+Hello !! I'm Asmo !! I'm a decora and I do ponytown stuff !!
 
 I'm also Snow Miku's biggest fan!! 
 
