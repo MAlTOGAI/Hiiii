@@ -1,4 +1,4 @@
-<p align=center> #“I still wanna sing… I, I still... I still wanna sing!”
+**<p align=center> "I'll warm you up with my cheerful songs!"**
 
 <img width="855" height="1108" alt="image" src="https://github.com/user-attachments/assets/5f4f6596-e2c3-4bc9-ab50-4bd67bdc8e93" />
 
