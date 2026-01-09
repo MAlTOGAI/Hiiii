@@ -2,7 +2,7 @@ Hello !! I'm Asmo !! I'm a decora and I do ponytown stuff !!
 
 I'm also Snow Miku's biggest fan!! 
 
-I luuuuuuuuuuv Naruto + Vocaloid and music!!!!! I'm a yumeshipper also :3                                          https://snowmiku.com/2023/images/info/snowmiku/about_snowmiku.png<img width="1097" height="1362" alt="image" src="https://github.com/user-attachments/assets/c7ca3bd4-0312-44a3-811f-3d6a97212bf5" />
+I luuuuuuuuuuv Naruto + Vocaloid and music!!!!! I'm a yumeshipper also :3                                          <img width="422" height="570" alt="image" src="https://github.com/user-attachments/assets/f3076d0f-0a4e-4aaf-a5fe-8bd0f3f62a38" />
 
 
 
