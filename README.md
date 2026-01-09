@@ -7,7 +7,8 @@
 I've been a little fixated on naruto for a little... I'm not that familiar with ponytown also I kinda just hang out there and be afk, I mainly get teached by my brother on ponytown!!
 ❄️
 
-<img width="794" height="1089" alt="image" src="https://github.com/user-attachments/assets/fc371d8e-3565-409e-b086-0ba6a568049e" />
+<img width="855" height="1327" alt="image" src="https://github.com/user-attachments/assets/39319f59-6f46-4362-8297-79c06adc4a55" />
+
 
 <p align=center> Yumes!!
 
