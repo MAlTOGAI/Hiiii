@@ -1,9 +1,9 @@
-**<p align=center> "I'll warm you up with my cheerful songs!"**
+❄️ **<p align=center> "I'll warm you up with my cheerful songs!"** ❄️
 
 <img width="855" height="1108" alt="image" src="https://github.com/user-attachments/assets/5f4f6596-e2c3-4bc9-ab50-4bd67bdc8e93" />
 
 
-<p align=center> ❄️ Hello !! I'm Asmo !! I'm a decora and I do ponytown stuff !! I'm also Snow Miku's biggest fan!!<p align=center> I luuuuuuuuuuv Naruto + Vocaloid and music!! I'm a yumeshipper also ❄️
+<p align=center> ❄️ Hello !! I'm Asmo !! I do ponytown stuff !! I'm also Snow Miku's biggest fan!!<p align=center> I luuuuuuuuuuv Naruto + Vocaloid and music!! I'm a yumeshipper also ❄️
 
                                            
 
