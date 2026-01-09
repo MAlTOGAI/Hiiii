@@ -5,7 +5,7 @@
 <img width="422" height="570" alt="image" src="https://github.com/user-attachments/assets/b4ffee18-50b9-4ac4-82a1-b1a3a0855f64" />
 
 
-<p align=center> ❄️ I luuuuuuuuuuv Naruto + Vocaloid and music!!!!! I'm a yumeshipper also :3 ❄️
+<p align=center> ❄️ I luuuuuuuuuuv Naruto + Vocaloid and music!! I'm a yumeshipper also :3 ❄️
 
 
 
