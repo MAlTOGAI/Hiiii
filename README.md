@@ -4,7 +4,7 @@ I'm also Snow Miku's biggest fan!!
 
 I luuuuuuuuuuv Naruto + Vocaloid and music!!!!! I'm a yumeshipper also :3                                          
 
-<img width="422" height="570" alt="image" src="https://github.com/user-attachments/assets/b4311883-c5fd-4e83-bce2-aee22cac6de5" />
+<img width="422" height="570" alt="image" src="https://github.com/user-attachments/assets/b4ffee18-50b9-4ac4-82a1-b1a3a0855f64" />
 
 
 
