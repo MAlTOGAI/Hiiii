@@ -19,4 +19,4 @@
 <p align=center> Yumes!!
 
 <p align=center> Asmodeus (Obey Me!)
-Beelzebulb (Obey Me!), Hagane Miku M-side (FANLOID), ?Gaara (Naruto), ?Orochimaru (Naruto), Zabuza (Naruto), Cash (webcomic i read), KAITO (VOCALOID), ?Emu Otori (PJSK)
+Beelzebulb (Obey Me!), Hagane Miku M-side (FANLOID), ?Gaara (Naruto), Orochimaru (Naruto), Zabuza (Naruto), Cash (webcomic i read), KAITO (VOCALOID), ?Emu Otori (PJSK)
