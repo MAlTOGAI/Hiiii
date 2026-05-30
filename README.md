@@ -1,6 +1,6 @@
  **<p align=center> "I'll warm you up with my cheerful songs!"** 
 
-<img width="855" height="1108" alt="image" src="<img width="751" height="563" alt="IMG_0839" src="https://github.com/user-attachments/assets/cd627801-ed13-4589-bcf3-7fb86525e9c8" />)" />
+<img width="751" height="563" alt="IMG_0839" src="https://github.com/user-attachments/assets/cd627801-ed13-4589-bcf3-7fb86525e9c8" />
 
 
 <p align=center> ❄️ Hello !! I'm Asmo !! I do ponytown stuff !! I'm also Snow Miku's biggest fan! I luuuuuuuuuuv Naruto + Vocaloid and music!! I'm a yumeshipper also ❄️
